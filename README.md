@@ -7,3 +7,4 @@
 - [Powers of Ten (1977)](https://www.youtube.com/watch?v=0fKBhvDjuy0)
 - [The Big Snit (1985)](https://www.youtube.com/watch?v=p1S5pAF1YYA)
 - [Balance (2003)](https://www.youtube.com/watch?v=oTGg0Z46Af4)
+- [Six Shooter (2004)](https://www.youtube.com/watch?v=n_xMyx_SogA)
